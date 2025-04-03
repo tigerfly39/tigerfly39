@@ -19,7 +19,7 @@ Hey, I'm **tigerfly**! I'll be starting an undergraduate degree in **Computer Sc
 Some of my current interests include:
 
 - osu!, gacha games
-- anime
+- anime (i am very slow)
 - running
 
 [osu! Profile](https://osu.ppy.sh/users/20407136) / [anilist](https://anilist.co/user/tigerfly/animelist)
